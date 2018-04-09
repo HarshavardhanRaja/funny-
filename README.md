@@ -1,0 +1,2 @@
+# funny-
+for financila analysis
